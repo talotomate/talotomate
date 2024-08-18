@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning coding 
 - 💞️ I’m looking to collaborate on art
 - 📫 Each me w' my social media
-- 😄 Pronouns: he/him - they/them
+- 😄 Pronouns: he/him 
 - ⚡ Fun fact: i love music but idk anything about 
 
 <!---
